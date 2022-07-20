@@ -1,1 +1,1 @@
-# Vizyoner Genç 2022 Stajı
+# Vizyoner Genç 2022 Yaz Stajı
